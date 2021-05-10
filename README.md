@@ -10,3 +10,10 @@ In this proposal, a detailed market research plan is developed based on the give
 
 ## Questionnaire
 Google Survey: https://forms.gle/caFTgtYfWyZn6HZm7
+
+
+
+
+### Let me know how i can improve! 
+Contact me at khawjiaer@gmail.com.
+
